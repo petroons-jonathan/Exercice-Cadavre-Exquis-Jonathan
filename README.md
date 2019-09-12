@@ -1,2 +1,3 @@
-__*La chose qui en savait trop*__
-*Il existait une chose qui en savait trop.*__Elle se savait en position de force avec ce savoir.__ Ce qu'*elle* ne __savait pas__ c'est qu'à partir d'__*aujourd'hui*__ tout allait changer.
+Mais que vois-je ? Je le pensais **endormi** et pourtant je ne suis pas *fou*, je l'ai vu bouger. Bouger mais sans se mouvoir. Comme si ce n'était pas son corps qui voyageait mais plutôt un détachement de l'esprit. *Ce que je vis ce soir-là me glaça le sang et même encore __aujourd'hui__, des années après, je reste prostré dans le __silence__*.
+
+Tu descends tes escalier _mal réveillée_ , passes devant la chambre de tes parents que tu vois endormis sous leurs draps puis devant celle de ton frère que tu entends respirer calmememnt. tu bois ton verre d'eau en observant ton frère qui dort dans le salon, __mais alors__...? 
